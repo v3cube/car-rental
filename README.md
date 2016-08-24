@@ -8,4 +8,4 @@ Own an online car rental business with our car rental script. A business that do
  - The script will be licensed only to you, securing it from theft.
 - If you are into the business of selling tailor made products to end users, this is the perfect product for you as we will white label it.
 - A product that can be branded as yours giving it your personality.
-Be the best by getting the best from the best. 	
+Be the best by getting the best from the best. Go to our website http://www.v3cube.com/car-renting-script/ for further details.
